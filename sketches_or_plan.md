@@ -1,3 +1,5 @@
+I proactively dedicate this sketch to my friend Ariel Pontes, in the hopes that he will also dedicate one of his next books to me. And of course to all my friends, and to my wife and parents and yeah... now I must thank more people... but whatever, that's fine :)
+
 Act 1, happy times
   - DJ is enjoying a nice happy life. Has hot gf, cool DJ friends. Does drugs. Goes to concerts
 
